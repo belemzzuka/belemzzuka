@@ -7,4 +7,4 @@ I'm Belem, a passionate networker learning to love software development.
 - 💬 I am a passionate networker so, we can talk about Cisco and Collaboration technologies (not limited to ...)
 - 🙋🏻‍♀️ Pronouns: She/Her 🏳️‍🌈
 - 🧨 Hobbies: #AFOL + 🐶🐶🐱 + 📱 + 🛹  
-- 🚀 Bucket list: Piano lessons, Snowboarding, Righ-side driving, Holding a minipig, Diving, Hang-Glider.
+- 🚀 Bucket list: Piano lessons, Snowboarding, Right-side driving, Holding a minipig, Diving, Hang-Glider.
